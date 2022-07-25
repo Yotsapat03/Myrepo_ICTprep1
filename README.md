@@ -7,3 +7,6 @@ Yotsapat rattanaprasert
 
 ## Email
 earth03042547@gmail.com
+
+## Myhometown
+Ban Phue , Udonthani ,Thailand
