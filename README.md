@@ -10,3 +10,9 @@ earth03042547@gmail.com
 
 ## Myhometown
 Ban Phue , Udonthani ,Thailand
+
+## My favorite activity
+*fishing
+*travelling
+*eating
+*making YouTube vedio 
