@@ -16,3 +16,4 @@ Ban Phue , Udonthani ,Thailand
 *travelling
 *eating
 *making YouTube vedio 
+*running
